@@ -21,7 +21,7 @@
 <p align="center">
 <ins><b><em>info</em></b></ins> Wyatt ou Will ♪They⧓Them 🦉 fem/13yrs overstimulatedquickly 🦷  so iwec!  13 & mature I believe in god I've met jesus he's a chill guy   pansexual & asexual and a bit sensitive so please be nice!!  basic DNI  int always!!   I don't   bite ok? me ->🐇 most of the time I reply late but that doesn't mean I hate you ok..  usually I dont want to rep but no hard feelings OK. its the usual Wyatt junk okay.. eventual reps make sure to read my rentry for ext 🐰♡🦉
 
-i really like will byers and stanley uris so please beaware when acting obsessive(?) . i loovvee my kins and friens mwa ♡⠀ 𓈒ॱ 
+i really like will byers and stanley uris so please beaware when acting obsessive(?) . i loovvee my kins and friens  ♡⠀ 𓈒ॱ 
 
 
 </p>
